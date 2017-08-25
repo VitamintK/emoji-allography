@@ -1,4 +1,4 @@
 # emoji-allography
 Spell words with emojis.
 
-🅿️®🅾©®🅰💲➕ℹ️♌️🅰➕ℹ️🔛
+I made this because of 🅿️®🅾©®🅰💲➕ℹ️♌️🅰➕ℹ️🔛
