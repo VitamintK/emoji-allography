@@ -39,3 +39,5 @@ mistranscription
 nonappropriation
 noncontamination
 ```
+
+if you share this, please do not do any Ⓜ️ℹ️💲🅰🅿️🅿️®🅾🅿️®ℹ️🅰➕ℹ️🆖‼️
